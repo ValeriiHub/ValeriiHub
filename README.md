@@ -1,6 +1,6 @@
 ### Hi there 👋 I'm Valerii Dulia
 
-__IOS Engineer from 🇺🇦 Ukraine 
+__IOS Engineer from 🇺🇦 Ukraine__
 
 
 ### Contacts:
